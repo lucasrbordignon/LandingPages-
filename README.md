@@ -1,2 +1,1 @@
-
-Minhas landing Pages, vou procurar sempre manter atualizado com meus projetos
+Minhas landing Pages, vou procurar sempre manter atualizado meus projetos.
